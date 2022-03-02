@@ -63,4 +63,33 @@ http://www.youtube.com/user/AirwaveMu...
 https://plus.google.com/+AirwaveMusicTV
 https://www.paypal.com/cgi-bin/webscr...
 
-5.
+5. **Arc North - Meant to Be (feat. Krista Marina) (https://www.youtube.com/watch?v=kSmMOsJmkfs)**
+
+Frequency - Exploring Music Together
+Spotify Playlist: https://frequency.lnk.to/spotify
+Apple Music Playlist: https://frequency.lnk.to/applemusic
+
+Stream / Free download 'Meant To Be': http://frequency.lnk.to/meanttobeID
+
+Follow us on
+Instagram → https://instagram.com/frequencymusic.co
+Facebook → https://facebook.com/frequencymusic.co
+Soundcloud → https://soundcloud.com/thisisfrequency
+Twitter → https://twitter.com/frequencymusico
+
+Follow Arc North
+https://www.instagram.com/arcnorth
+https://www.youtube.com/channel/UCqaw...
+https://www.facebook.com/ArcNorth
+https://twitter.com/ArcNorth 
+
+Follow Krista Marina
+https://www.instagram.com/kristamarina_
+https://www.youtube.com/channel/UC0BE...
+https://twitter.com/kristamarina_
+
+6. **Ash O'Connor - You [NCS Release]**
+
+Music provided by NoCopyrightSounds
+Free Download/Stream: http://ncs.io/aocyou
+Watch: http://youtu.be/TbDyQuMJ5QI
