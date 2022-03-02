@@ -1,5 +1,5 @@
 # ETS2 Playlist
-1. **2BAD - Space Cake (https://www.youtube.com/watch?v=c3ibZ3QWXaI)
+1. **2BAD - Space Cake (https://www.youtube.com/watch?v=c3ibZ3QWXaI)**
 
 Frequency - Exploring Music Together
 Spotify Playlist: https://frequency.lnk.to/spotify
@@ -15,7 +15,7 @@ Follow 2BAD
 https://soundcloud.com/officialtiimo
 https://www.facebook.com/officialtiimo
 
-2. Ahxello - Horizon (https://www.youtube.com/watch?v=eyry00maA9s)
+2. **Ahxello - Horizon (https://www.youtube.com/watch?v=eyry00maA9s)**
 
 - Music provided by AirwaveMusicTV (https://www.youtube.com/c/AirwaveMusicTV)
 - Ahxello
