@@ -117,3 +117,13 @@ AVTV:
 - Free Download/Stream: http://ncs.io/cuagain
 - Watch: http://youtu.be/NJNp6DnAAIo
 
+11. **Chime & Adam Tell - Whole (Rob Gasser Remix) [NCS Release]**
+- Music provided by NoCopyrightSounds
+- Free Download/Stream: http://ncs.io/WholeRemix
+- Watch: http://youtu.be/AHBnM1Jin9A
+
+12. **Chris Later & Dany Yeager - There's Nobody Else [NCS Release]**
+- Music provided by NoCopyrightSounds
+- Free Download/Stream: http://NCS.io/TheresNobodyElse
+- Watch: http://youtu.be/3hXbjp-FcTc
+
