@@ -90,12 +90,12 @@ https://twitter.com/kristamarina_
 
 6. **Ash O'Connor - You [NCS Release]**
 
-Music provided by NoCopyrightSounds
-Free Download/Stream: http://ncs.io/aocyou
-Watch: http://youtu.be/TbDyQuMJ5QI
+- Music provided by NoCopyrightSounds
+- Free Download/Stream: http://ncs.io/aocyou
+- Watch: http://youtu.be/TbDyQuMJ5QI
 
 7. **Audioscribe - Free Fall [NCS Release]**
 
-Music provided by NoCopyrightSounds
-Free Download/Stream: http://ncs.io/freefall
-Watch: http://youtu.be/8ciZGNmlWgo
+- Music provided by NoCopyrightSounds
+- Free Download/Stream: http://ncs.io/freefall
+- Watch: http://youtu.be/8ciZGNmlWgo
