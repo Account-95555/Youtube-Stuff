@@ -1,24 +1,24 @@
 # ETS2 Playlist
 1. **2BAD - Space Cake (https://www.youtube.com/watch?v=c3ibZ3QWXaI)**
 
-- Frequency - Exploring Music Together
+Frequency - Exploring Music Together
 - Spotify Playlist: https://frequency.lnk.to/spotify
 - Apple Music Playlist: https://frequency.lnk.to/applemusic
 
-- Follow Frequency on
+Follow Frequency on
 - Instagram → https://www.instagram.com/frequencymu...
 - Facebook → https://www.facebook.com/frequencymus...
 - Soundcloud → https://soundcloud.com/thisisfrequency
 - Twitter → https://twitter.com/frequencymusico
 
-- Follow 2BAD
+Follow 2BAD
 - https://soundcloud.com/officialtiimo
 - https://www.facebook.com/officialtiimo
 
 2. **Ahxello - Horizon (https://www.youtube.com/watch?v=eyry00maA9s)**
 
-- Music provided by AirwaveMusicTV (https://www.youtube.com/c/AirwaveMusicTV)
-- Ahxello
+Music provided by AirwaveMusicTV (https://www.youtube.com/c/AirwaveMusicTV)
+Ahxello
 - https://soundcloud.com/ahxello
 - https://www.facebook.com/ahxello1
 - https://www.youtube.com/user/AhxelloO...
@@ -27,7 +27,7 @@
 
 - Free Download: http://click.dj/airwavemusictv/ahxell...
 
-- AirwaveMusicTV
+AirwaveMusicTV
 - http://soundcloud.com/airwavemusictv
 - http://www.facebook.com/AirwaveMusicT...
 - https://twitter.com/AirwaveMusicTV
@@ -42,20 +42,20 @@
 
 4. **Ahxello and Alex Skrindo - Rivalry (https://www.youtube.com/watch?v=BRKu996lqww)**
 
-- Ahxello
+Ahxello
 - https://soundcloud.com/ahxello
 - https://www.facebook.com/ahxello1
 - https://www.youtube.com/user/AhxelloO...
 - https://play.spotify.com/artist/3avjT...
 
-- Alex Skrindo
+Alex Skrindo
 - https://soundcloud.com/alex-skrindo
 - https://www.facebook.com/AlexanderSkr...
 - https://twitter.com/AlexSkrindo
 
 - Free Download: http://stereoload.com/airwavemusictv/...
 
-- AirwaveMusicTV
+AirwaveMusicTV
 - http://soundcloud.com/airwavemusictv
 - http://www.facebook.com/AirwaveMusicT...
 - https://twitter.com/AirwaveMusicTV
@@ -65,25 +65,25 @@
 
 5. **Arc North - Meant to Be (feat. Krista Marina) (https://www.youtube.com/watch?v=kSmMOsJmkfs)**
 
-- Frequency - Exploring Music Together
+Frequency - Exploring Music Together
 - Spotify Playlist: https://frequency.lnk.to/spotify
 - Apple Music Playlist: https://frequency.lnk.to/applemusic
 
 - Stream / Free download 'Meant To Be': http://frequency.lnk.to/meanttobeID
 
-- Follow us on
+Follow Frequency on
 - Instagram → https://instagram.com/frequencymusic.co
 - Facebook → https://facebook.com/frequencymusic.co
 - Soundcloud → https://soundcloud.com/thisisfrequency
 - Twitter → https://twitter.com/frequencymusico
 
-- Follow Arc North
+Follow Arc North
 - https://www.instagram.com/arcnorth
 - https://www.youtube.com/channel/UCqaw...
 - https://www.facebook.com/ArcNorth
 - https://twitter.com/ArcNorth 
 
-- Follow Krista Marina
+Follow Krista Marina
 - https://www.instagram.com/kristamarina_
 - https://www.youtube.com/channel/UC0BE...
 - https://twitter.com/kristamarina_
