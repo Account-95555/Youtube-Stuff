@@ -1,5 +1,5 @@
 # ETS2 Playlist
-1. 2BAD - Space Cake (https://www.youtube.com/watch?v=c3ibZ3QWXaI)
+1. **2BAD - Space Cake (https://www.youtube.com/watch?v=c3ibZ3QWXaI)
 
 Frequency - Exploring Music Together
 Spotify Playlist: https://frequency.lnk.to/spotify
