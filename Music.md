@@ -100,3 +100,14 @@ Follow Krista Marina
 - Music provided by NoCopyrightSounds
 - Free Download/Stream: http://ncs.io/freefall
 - Watch: http://youtu.be/8ciZGNmlWgo
+
+8. **AVTV - Sound Of Northern Lights (https://www.youtube.com/watch?v=zTTrX167Y3E)**
+
+AVTV:
+- https://www.youtube.com/channel/UCjeM...
+- https://soundcloud.com/avtvofficial
+
+9. **Axol x Alex Skrindo - You [NCS Release]**
+- Music provided by NoCopyrightSounds
+- Free Download/Stream: http://ncs.io/axolyou
+- Watch: http://youtu.be/sA_p0rQtDXE
