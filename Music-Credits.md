@@ -195,6 +195,6 @@ AVTV:
 - Watch: http://youtu.be/jbYCZamoWyg
 
 24. **IZECOLD - Close (feat. Molly Ann) [Brooks Remix] [NCS Release]**
-Music provided by NoCopyrightSounds
-Free Download/Stream: http://ncs.io/brooksclose
-Watch: http://youtu.be/bzehQ60b3XI
+- Music provided by NoCopyrightSounds
+- Free Download/Stream: http://ncs.io/brooksclose
+- Watch: http://youtu.be/bzehQ60b3XI
