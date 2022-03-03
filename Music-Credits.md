@@ -280,4 +280,38 @@ AVTV:
 - Free Download/Stream: http://ncs.io/titsepoken
 - Watch: http://youtu.be/S81bLqpstUE
 
-45. **
+45. **Leowi - Hollywood (feat. joegarratt) [NCS Release]**
+- Music provided by NoCopyrightSounds
+- Free Download/Stream: http://ncs.io/hollywood
+- Watch: http://youtu.be/jKntxavxk
+
+46. **LFZ - Echoes (Meikal Remix) [NCS Release]**
+- Music provided by NoCopyrightSounds
+- Free Download/Stream: http://ncs.io/echoesremix
+- Watch: http://youtu.be/nMldNLiYzGU
+
+47. **LFZ - Echoes [NCS Release]**
+- Music provided by NoCopyrightSounds
+- Free Download/Stream: http://ncs.io/lfzechoes
+- Watch: http://youtu.be/Q_ojhcx-wrk
+
+48. **Lumian - Wildlife (https://www.youtube.com/watch?v=N55CW8i3zPw)**
+- Frequency - Exploring Music Together
+- Spotify Playlist: https://frequency.lnk.to/spotify
+- Apple Music Playlist: https://frequency.lnk.to/applemusic
+
+- Stream / Free download: http://frequency.lnk.to/wildlife2ID
+
+- Follow Frequency on
+- Instagram → https://www.instagram.com/frequencymu...
+- Facebook → https://www.facebook.com/frequencymus...
+- Soundcloud → https://soundcloud.com/thisisfrequency
+- Twitter → https://twitter.com/frequencymusico
+
+- Follow Lumian
+- https://soundcloud.com/lumian
+- https://twitter.com/LumianOfficial
+- https://www.youtube.com/user/lumianmusic
+- https://www.facebook.com/LumianMusic
+
+49.
