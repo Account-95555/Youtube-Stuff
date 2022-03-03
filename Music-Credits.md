@@ -219,5 +219,22 @@ AVTV:
 - Free Download/Stream: N/A
 - Watch: http://youtu.be/ZBd323bBg5c
 
-33. 
+33. **Kasger - Highland [NCS Release]**
+- Music provided by NoCopyrightSounds
+- Free Download/Stream: http://ncs.io/highland
+- Watch: http://youtu.be/agi-FWTLMh0
 
+34. **Kasger - Reflections [NCS Release]**
+- Music provided by NoCopyrightSounds
+- Free Download/Stream: http://ncs.io/kreflections
+- Watch: http://youtu.be/M4_ivwYfWFo
+
+35. **Killabyte - Our Story [NCS Release]**
+- Music provided by NoCopyrightSounds
+- Free Download/Stream: http://ncs.io/ourstory
+- Watch: http://youtu.be/vLGrVfN6WBk
+
+36. **Killabyte - Wicked Ways (feat. Danyka Nadeau) [NCS Release]**
+- Music provided by NoCopyrightSounds
+- Free Download/Stream: http://ncs.io/WickedWays
+- Watch: http://youtu.be/KCpQBB22Xwc
