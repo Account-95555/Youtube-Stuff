@@ -314,4 +314,35 @@ AVTV:
 - https://www.youtube.com/user/lumianmusic
 - https://www.facebook.com/LumianMusic
 
-49.
+49. **NIVIRO - Flares [NCS Release]**
+- Music provided by NoCopyrightSounds
+- Free Download/Stream: http://ncs.io/Flares
+- Watch: http://youtu.be/V-mP3VU0DCg
+
+50. **Petar Della Pietra - Bass Heads (https://www.youtube.com/watch?v=oAFugQDy5RM)**
+- Support Frequency:https://www.youtube.com/user/FreeSong...
+- Support Petar Della Pietra:https://soundcloud.com/petardellapiet...
+
+51. **Petar Della Pietra - By My Side (https://www.youtube.com/watch?v=AoqmabQKJ2M)**
+- Subscribe here: http://bit.ly/housecitysub
+- Free Download: http://bit.ly/2dKyF5n
+- Submit a Track/Demo: http://click.dj/submit/housecity
+
+- Become a fan of House City:
+- https://www.soundcloud.com/housecitys...
+- https://www.facebook.com/housecitysounds
+- https://www.twitter.com/housecitysounds
+- https://www.instagram.com/housecityso...
+- https://www.snapchat.com/add/Housecit...
+
+- Follow Petar Della Pietra:
+- https://www.soundcloud.com/petardella...
+- https://www.facebook.com/PetarDellaPi...
+- https://www.twitter.com/PetarDellaP
+- https://www.youtube.com/petardellapietra
+- https://www.petardellapietra.com
+
+52. **Phantom Sage - Hollow [NCS Release]**
+- Music provided by NoCopyrightSounds
+- Free Download/Stream: http://ncs.io/pshollow
+- Watch: http://youtu.be/4m9qzHyWPQo
