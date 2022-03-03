@@ -1,3 +1,5 @@
+# If any artist wants me to remove their song from here, please leave a comment on my youtube channel's latest video. Thank you!
+
 # ETS2 Playlist
 1. **2BAD - Space Cake (https://www.youtube.com/watch?v=c3ibZ3QWXaI)**
 Frequency - Exploring Music Together
@@ -419,4 +421,60 @@ AVTV:
 - Free Download/Stream: http://ncs.io/toburunning
 - Watch: http://youtu.be/nQT_2XS45Uk
 
-62. **
+62. **Trixtor - Intergalactic (https://www.youtube.com/watch?v=V-UerLwjZHg)**
+- Frequency - Exploring Music Together
+- Spotify Playlist: https://frequency.lnk.to/spotify
+- Apple Music Playlist: https://frequency.lnk.to/applemusic
+
+- Stream / Free download: http://frequency.lnk.to/intergalacticID
+
+- Follow Frequency on
+- Instagram → https://www.instagram.com/frequencymu...
+- Facebook → https://www.facebook.com/frequencymus...
+- Soundcloud → https://soundcloud.com/thisisfrequency
+- Twitter → https://twitter.com/frequencymusico
+
+- Follow Trixtor:
+- https://soundcloud.com/trixtorofficial
+- https://twitter.com/realtrixtor
+- https://www.instagram.com/heyitsbrads
+- https://www.facebook.com/TrixtorOfficial
+
+63. **Trixtor - Just This Once (https://www.youtube.com/watch?v=KuaN2AQwtwk)**
+- Frequency - Exploring Music Together
+- Spotify Playlist: https://frequency.lnk.to/spotify
+- Apple Music Playlist: https://frequency.lnk.to/applemusic
+
+- Stream / Free download: http://frequency.lnk.to/justthisonceID
+
+- Follow Frequency on
+- Instagram → https://www.instagram.com/frequencymu...
+- Facebook → https://www.facebook.com/frequencymus...
+- Soundcloud → https://soundcloud.com/thisisfrequency
+- Twitter → https://twitter.com/frequencymusico
+
+- Follow Trixtor
+- https://soundcloud.com/trixtorofficial
+- https://twitter.com/realtrixtor
+- https://www.instagram.com/heyitsbrads
+- https://www.facebook.com/TrixtorOfficial
+
+64. **Unison - Aperture [NCS Release]**
+- Music provided by NoCopyrightSounds
+- Free Download/Stream: http://ncs.io/aperture
+- Watch: http://youtu.be/8VDjPYcL-oU
+
+65. **Valcos - A New Light [NCS Release]**
+- Music provided by NoCopyrightSounds
+- Free Download/Stream: http://ncs.io/anewlight
+- Watch: http://youtu.be/o_v9WSImGIU
+
+66. **Vanze - Forever (feat. Brenton Mattheus) [NCS Release]**
+- Music provided by NoCopyrightSounds
+- Free Download/Stream: http://ncs.io/forever
+- Watch: http://youtu.be/RX7fZ5I709Y
+
+67. **Vanze - Survive (feat. Neon Dreams) [NCS Release])**
+- Music provided by NoCopyrightSounds
+- Free Download/Stream: http://ncs.io/vsurvive
+- Watch: http://youtu.be/cvl8e2se8Q4
