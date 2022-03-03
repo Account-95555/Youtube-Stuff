@@ -398,3 +398,25 @@ AVTV:
 - Steam Phunk
 - https://soundcloud.com/steamphunk
 - https://twitter.com/WeAreSteamPhunk
+
+58. **Syn Cole - Gizmo [NCS Release]**
+- Music provided by NoCopyrightSounds
+- Free Download/Stream: http://ncs.io/Gizmo
+- Watch: http://youtu.be/pZzSq8WfsKo
+
+59. **Tetrix Bass Feat. Veela - The Light [NCS Release]**
+- Music provided by NoCopyrightSounds
+- Free Download/Stream: http://ncs.io/TheLight
+- Watch: http://youtu.be/wmgrnv0-oUc
+
+60. **Tobu - Sound of Goodbye [NCS Release]**
+- Music provided by NoCopyrightSounds
+- Free Download/Stream: http://ncs.io/sog
+- Watch: http://youtu.be/Q5GgD_HvJMs
+
+61. **Tobu & Marcus Mouya - Running Away [NCS Release]**
+- Music provided by NoCopyrightSounds
+- Free Download/Stream: http://ncs.io/toburunning
+- Watch: http://youtu.be/nQT_2XS45Uk
+
+62. **
