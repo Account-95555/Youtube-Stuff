@@ -238,3 +238,24 @@ AVTV:
 - Music provided by NoCopyrightSounds
 - Free Download/Stream: http://ncs.io/WickedWays
 - Watch: http://youtu.be/KCpQBB22Xwc
+
+37. **Killercats - What I Said (feat. Alex Skrindo) [NCS Release]**
+- Music provided by NoCopyrightSounds
+- Free Download/Stream: http://ncs.io/whatisaid
+- Watch: http://youtu.be/Z0yCMiYmL7w
+
+38. **Kisma - Fingertips [NCS Release]**
+- Music provided by NoCopyrightSounds
+- Free Download/Stream: http://ncs.io/Fingertips
+- Watch: http://youtu.be/LJeiQw2RmSg
+
+39. **Kisma- We Are [NCS Release]**
+- Music provided by NoCopyrightSounds
+- Free Download/Stream: http://ncs.io/WeAre
+- Watch: http://youtu.be/WfluodjOkOk
+
+40. **Konac - Away**
+- Music Released and Provided by Tasty 
+- Song Title: Konac - Away
+- Music Video: https://youtu.be/TPaleNR9eis
+- Label Channel: http://youtube.com/TastyNetwork
