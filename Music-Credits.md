@@ -1,6 +1,6 @@
 # If any artist wants me to remove their song from here, please leave a comment on my youtube channel's latest video. Thank you!
 
-# ETS2 Playlist
+## ETS2 Playlist
 1. **2BAD - Space Cake (https://www.youtube.com/watch?v=c3ibZ3QWXaI)**
 Frequency - Exploring Music Together
 - Spotify Playlist: https://frequency.lnk.to/spotify
@@ -478,3 +478,33 @@ AVTV:
 - Music provided by NoCopyrightSounds
 - Free Download/Stream: http://ncs.io/vsurvive
 - Watch: http://youtu.be/cvl8e2se8Q4
+
+68. **Vena Cava - TOHKA (feat. Raya) [NCS Release]**
+- Music provided by NoCopyrightSounds
+- Free Download/Stream: N/A
+- Watch: http://youtu.be/uPjgyzWVblA
+
+69. **Vena Cava & Project Veresen feat. Raya - Flames [NCS Release]**
+- Music provided by NoCopyrightSounds
+- Free Download/Stream: http://ncs.io/flames
+- Watch: http://youtu.be/nFnNRYKeFWI
+
+70. **Verm - Explode [NCS Release]**
+- Music provided by NoCopyrightSounds
+- Free Download/Stream: N/A
+- Watch: http://youtu.be/vbXl-Ne-eMM
+
+71. **Warptech ft. Cory Friesenhan - Resolution [NCS Release]**
+- Music provided by NoCopyrightSounds
+- Free Download/Stream: http://ncs.io/resolution
+- Watch: http://youtu.be/0hNdLnEbS68
+
+72. **Waysons - Eternal Minds [NCS Release]**
+- Music provided by NoCopyrightSounds
+- Free Download/Stream: http://ncs.io/eternalminds
+- Watch: http://youtu.be/ZhECyz85FMc
+
+73. **William Ekh - Adventures (feat. Alexa Lusader) [NCS Release]**
+- Music provided by NoCopyrightSounds
+- Free Download/Stream: http://ncs.io/adventures
+- Watch: http://youtu.be/1TJsN58hv74
