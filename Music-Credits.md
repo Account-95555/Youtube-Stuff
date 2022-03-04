@@ -549,7 +549,7 @@ AVTV:
 
 - Donate via PayPal and support my channel: https://www.paypal.com/cgi-bin/webscr...
 
-76. **FEWZ - Drive ()*
+76. **FEWZ - Drive (https://www.youtube.com/watch?v=q1L9sI_FdSM)**
 - Frequency - Exploring Music Together
 - Spotify Playlist: https://frequency.lnk.to/spotify
 - Apple Music Playlist: https://frequency.lnk.to/applemusic
@@ -566,3 +566,40 @@ AVTV:
 - https://soundcloud.com/deejayfewzoffi...
 - https://www.facebook.com/FewzMusic
 - https://www.youtube.com/channel/UCeLK...
+
+77. **Krys Talk & Cole Sipe - Way Back Home [NCS Release]**
+- Music provided by NoCopyrightSounds
+- Free Download/Stream: http://ncs.io/waybackhome
+- Watch: http://youtu.be/qrmc7KVIoKQ
+
+78. **FEWZ - Starry Eyed (https://www.youtube.com/watch?v=AWf-STQWY4E)**
+- Progressive House! Free Download at my Soundcloud page!!:)
+- https://soundcloud.com/deejayfewzoffi...
+
+- Support FEWZ:
+- https://www.facebook.com/FewzMusic
+- https://soundcloud.com/deejayfewzoffi...
+
+79. **Heart FX - Thinking Of You (Roulsen Remix) ()**
+- Check our Spotify playlist ▶︎ https://spoti.fi/2JsVs25
+- Download/Stream this track: https://goo.gl/17BA8b
+- Join our community on Discord: https://discord.gg/Xnqk6zG
+
+- Follow Future House Music:
+- Website: https://futurehousemusic.com
+- Facebook: https://facebook.com/futurehousemusic
+- Soundcloud: https://soundcloud.com/futurehousemusic
+- Twitter: https://twitter.com/futurehousmusic
+- Instagram: https://instagram.com/futurehousemusic
+
+- Follow Roulsen:
+- https://facebook.com/roulsenmusic
+- https://soundcloud.com/roulsenmusic
+- https://twitter.com/roulsenmusic
+- https://instagram.com/roulsenmusic
+
+- Follow Flamingo Recordings:
+- https://facebook.com/flamingorecordings
+- https://soundcloud.com/flamingo-recor...
+- https://twitter.com/Flamingo_Rec
+- https://instagram.com/flamingorecordings
