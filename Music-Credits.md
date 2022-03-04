@@ -1,4 +1,5 @@
 # If any artist wants me to remove their song from here, please leave a comment on my youtube channel's latest video. Thank you!
+# *ATTENTION: SOME OF THE LINKS HERE MAY BE OUTDATED, AND CANNOT BE FOUND AGAIN, SORRY ABOUT THAT!*
 
 ## ETS2 Playlist
 1. **2BAD - Space Cake (https://www.youtube.com/watch?v=c3ibZ3QWXaI)**
@@ -625,3 +626,17 @@ AVTV:
 - https://soundcloud.com/jessepaulwarren (UPDATED)
 - http://instagram.com/originaljessew
 - http://twitter.com/originaljw
+
+82. **MindlessFate - Activate (https://www.youtube.com/watch?v=w47aWOSQIvA)**
+- Downloads: 
+- Free download: http://bit.ly/21Dure4
+
+- Support MindlessFate:
+- Twitter: http://bit.ly/10QZYiy
+- Soundcloud: http://bit.ly/10Mb3kw 
+- YouTube: http://bit.ly/1yrE31h
+
+- Support PhaseBeats:
+- YouTube: http://bit.ly/1kRuQDK
+- Twitter: http://bit.ly/1jyZbYk
+- Google+: http://bit.ly/1oUI3le
