@@ -36,6 +36,8 @@ AirwaveMusicTV
 - https://plus.google.com/+AirwaveMusicTV
 - https://www.paypal.com/cgi-bin/webscr...
 
+-Donate via PayPal and support my channel: https://www.paypal.com/cgi-bin/webscr...
+
 3. **Ahxello - Takeoff (https://www.youtube.com/watch?v=De1keplNA34)**
 - Free Download: http://stereoload.com/ahxello/ahxello...
 - Listen on Spotify: https://open.spotify.com/album/0WZMKv...
@@ -61,6 +63,8 @@ AirwaveMusicTV
 - http://www.youtube.com/user/AirwaveMu...
 - https://plus.google.com/+AirwaveMusicTV
 - https://www.paypal.com/cgi-bin/webscr...
+
+- Donate via PayPal and support my channel: https://www.paypal.com/cgi-bin/webscr...
 
 5. **Arc North - Meant to Be (feat. Krista Marina) (https://www.youtube.com/watch?v=kSmMOsJmkfs)**
 Frequency - Exploring Music Together
@@ -508,3 +512,39 @@ AVTV:
 - Music provided by NoCopyrightSounds
 - Free Download/Stream: http://ncs.io/adventures
 - Watch: http://youtu.be/1TJsN58hv74
+
+74. **Different Heaven - Far Away [NCS Release]**
+- Music provided by NoCopyrightSounds
+- Free Download/Stream: http://ncs.io/faraway
+- Watch: http://youtu.be/HpaHvUOk3F0
+
+75. **JJD & Alex Skrindo - Aurora | AirwaveMusic Release (https://www.youtube.com/watch?v=viHZ3tR0jE8)**
+- Free Download: http://click.dj/airwavemusictv/jjd-al...
+
+- AirwaveMusicTV - Music for your heart. ♥
+- Soundcloud: http://bit.ly/2394bHw | Facebook: http://bit.ly/1SuQFfR
+- Subscribe: http://bit.ly/1WUhw6Q
+
+- JJD & Alex Skrindo - Aurora [AirwaveMusic Release]
+
+- JJD
+- https://soundcloud.com/jjdofficial
+- https://www.facebook.com/jjdofficial
+- https://www.youtube.com/user/JJDofficial
+
+- Alex Skrindo
+- https://soundcloud.com/alex-skrindo
+- https://www.facebook.com/AlexanderSkr...
+- https://twitter.com/AlexSkrindo
+- https://www.youtube.com/user/21noocead12
+
+- Free Download: http://click.dj/airwavemusictv/jjd-al...
+
+- AirwaveMusicTV
+- http://soundcloud.com/airwavemusictv
+- http://www.facebook.com/AirwaveMusicT...
+- https://twitter.com/AirwaveMusicTV
+- http://www.youtube.com/user/AirwaveMu...
+- https://plus.google.com/+AirwaveMusicTV
+
+- Donate via PayPal and support my channel: https://www.paypal.com/cgi-bin/webscr...
