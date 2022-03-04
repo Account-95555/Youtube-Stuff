@@ -640,3 +640,46 @@ AVTV:
 - YouTube: http://bit.ly/1kRuQDK
 - Twitter: http://bit.ly/1jyZbYk
 - Google+: http://bit.ly/1oUI3le
+
+83. **JOA & Mabeha - Skyward (https://www.youtube.com/watch?v=4GfgaKVz12s)**
+- Frequency - Exploring Music Together
+- Spotify Playlist: https://frequency.lnk.to/spotify
+- Apple Music Playlist: https://frequency.lnk.to/applemusic
+
+- Stream / Free download: http://frequency.lnk.to/skywardID
+
+- Follow Frequency on
+- Instagram → https://www.instagram.com/frequencymu...
+- Facebook → https://www.facebook.com/frequencymus...
+- Soundcloud → https://soundcloud.com/thisisfrequency
+- Twitter → https://twitter.com/frequencymusico
+
+- Follow JOA
+- https://soundcloud.com/joakimnilsen1
+- https://www.youtube.com/channel/UC0Hg...
+- https://www.facebook.com/Joakimnilsenjoa
+
+- Follow Mabeha
+- https://soundcloud.com/mabeha
+- https://twitter.com/mabeha_music
+- https://www.facebook.com/mabehaofficial
+- https://www.youtube.com/channel/UCKV_...
+
+84. **Flexxus - Lights (https://www.youtube.com/watch?v=WFg37FsGHWc)**
+- Download here: https://soundcloud.com/outertone/flex...
+
+- Listen on Spotify: https://open.spotify.com/album/7IxsLm...
+
+- Outertone Spotify Playlist: http://open.spotify.com/user/routenot...
+
+- Follow Flexxus:
+- https://soundcloud.com/flexxus1
+- https://www.facebook.com/flexxus?ref=...
+- https://twitter.com/Flexxus1
+- https://www.youtube.com/user/123Muella
+
+- Follow Outertone: 
+- Website: http://outertone.com
+- Facebook: https://www.facebook.com/outertonemusic
+- Twitter: http://twitter.com/outertonemusic
+- SoundCloud: https://soundcloud.com/outertone
