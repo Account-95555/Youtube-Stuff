@@ -603,3 +603,25 @@ AVTV:
 - https://soundcloud.com/flamingo-recor...
 - https://twitter.com/Flamingo_Rec
 - https://instagram.com/flamingorecordings
+
+80. **FEWZ - Mystic Tides (https://www.youtube.com/watch?v=lZHzjYv7G70)**
+- Melodic House! Free Download at my Soundcloud page!!:)
+- https://soundcloud.com/deejayfewzoffi...
+
+- Support FEWZ: 
+- https://www.facebook.com/FewzMusic
+- https://soundcloud.com/deejayfewzoffi...
+
+81. **Jesse Warren (Spektrem) - Don't Look Down (https://www.youtube.com/watch?v=S8DicKe8FP4)**
+- Music Provided by BreakingCopyright (https://www.youtube.com/channel/UCUFDNffZtBGisDliMx12fYw)
+- http://soundcloud.com/BreakingCopyright
+- http://facebook.com/BreakingTheCopyright
+- http://twitter.com/BreakCopyright (Here we speak in spanish)
+- http://instagram.com/breakingcopyright_
+- http://twitch.tv/breakingcopyright
+- http://bit.ly/BCspotify
+
+- Spektrem
+- https://soundcloud.com/jessepaulwarren (UPDATED)
+- http://instagram.com/originaljessew
+- http://twitter.com/originaljw
