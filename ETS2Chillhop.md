@@ -14,7 +14,11 @@
 12. cocabona, Monma - Sleepy https://chll.to/c03bfac3
 13. cocabona, Monma - Pyra https://chll.to/9b84eaf9
 14. Monma - ManaTree https://chll.to/d2caa51b
-15. Philanthrope, cocabona, Monma, Misha, Louk - Searching https://chll.to/d11137d9
+15. Kupla - New Beginnings https://chll.to/aafcdbfc
 16. Philanthrope, Parkbench Epiphany - Waybackwhen https://chll.to/214775b0
 17. Nymano, Suuna - Mistral https://chll.to/a8ef8672
 18. The Field Tapes, Aviino - Sugarless https://chll.to/12b0df85
+19. Mr. Käfer - Blue Skys https://chll.to/4e0961fd
+20. Idealism, SwuM - Starlink https://chll.to/f3bbe035
+21. Idealism, SwuM - Know by Now https://chll.to/c20011a1
+22. Idealism, SwuM - Home https://chll.to/81530969
